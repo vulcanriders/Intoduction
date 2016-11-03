@@ -1,6 +1,4 @@
-# General
-
-Hi, Guys!
+# Hi, Guys!
 
 I'm the webmaster at Vulcan Riders Sweden.
 We are chapter 46 of the international Vulcan Riders Association.
