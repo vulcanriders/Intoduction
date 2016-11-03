@@ -5,7 +5,7 @@ Hi, Guys!
 I'm the webmaster at Vulcan Riders Sweden.
 We are chapter 46 of the international Vulcan Riders Association.
 
-The purpose with the association is to gether people who rides Kawasaki Vulcan motorcycles - there crusing bikes - aroun the world.
+The purpose with the association is to gether people who rides Kawasaki Vulcan motorcycles - there crusing bikes - worldwide.
 In our Swedish chapter we are just under six thousend members.
 Since we lives all over the contry we have our "club houe" on internett.
 And you are welcome to visit us att - http://www.vulcanriders-sweden.org.
